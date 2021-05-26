@@ -1,1 +1,1 @@
-https://iry-ss.github.io/index.html
+https://iry-ss.github.io/index1.html
